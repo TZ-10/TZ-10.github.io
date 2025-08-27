@@ -1,1 +1,1 @@
-Github account for school worl and assignments
+Github account for school work and assignments
